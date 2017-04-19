@@ -4,7 +4,7 @@ Julin N Maloof
 
 ### Basic Info
 
-__Name:__ Julian N. Maloof
+__Name:__ Julin N. Maloof
 
 __Born:__ May 2, 1967
 
