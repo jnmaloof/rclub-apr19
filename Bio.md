@@ -31,3 +31,8 @@ __Birthplace:__ Atlanta, GA
 * Photography
 * Hiking
 
+#### Accolades from one who knows
+* An excellent cook
+* Takes awesome photos
+* Super helpful with R
+* All-around great guy
